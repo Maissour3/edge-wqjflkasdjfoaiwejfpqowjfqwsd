@@ -1,0 +1,2 @@
+# edge-wqjflkasdjfoaiwejfpqowjfqwsd
+Technical static archive for wqjflkasdjfoaiwejfpqowjfqwsd
